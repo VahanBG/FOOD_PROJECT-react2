@@ -1,1 +1,1 @@
-
+This project allowed me to put my knowledge into practice, better understand many concepts and visualize the working of many mechanisms in real life. I really liked it and had a lot of fun. I continue to deepen my knowledge.
